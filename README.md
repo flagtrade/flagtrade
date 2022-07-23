@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @flagtrade
-- 👀 I’m interested in trading software, algorithm, software consultant, and many more
+- 👀 I’m interested in trading software, quat trading algorithm, software consultant in Finance/Fintech, healthcare, environment protection, and many more
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me by email: tflag3502@gmail.com
